@@ -18,3 +18,17 @@ Disolver la levadura en un poquito de agua y azúcar. Dejar reposar unos 15 minu
 Aparte, mezclar las harinas, hacer un hueco y colocar la levadura. Amasar e incorporar agua hasta obtener una masa homogénea. Dejar reposar por 30 minutos aprox., hasta que la masa duplique su volumen. Estirar en la mesada con un palo de amasar. Cubrir con la salsa. Llevar a horno moderado hasta que la salsa se seque. Cubrir con el queso y las verduras.
 
 Se puede usa: berenjenas y zapallitos grillados; espinaca salteada, tomate y rúcula o las que más te gusten.
+
+# Salmon a la toscana
+
+Ingredientes (4 porciones)
+4 filetes de salmón
+1 puerro grande
+2 tomates grandes
+1 cebolla de verdeo
+200 ml de crema (sin TACC, para que la receta sea apta celíacos)
+Sal y pimienta
+Preparación
+En una sartén, con un poco de aceite, distribuir los filetes de salmón y dorar de ambos lados. Agregar la cebolla y el puerro picados y los tomates cortados en cubitos. Una vez que todo esté cocido, agregar la crema  y condimentar a gusto.
+
+Se puede servir sobre una base de arroz o quinoa.
